@@ -1,10 +1,10 @@
 # LaszloKiss
 
-Age 47
+Laszlo Kiss, Age 47
 
 Color- Grün
 
-English obwohl ich viel learnen muss
+English obwohl ich muss noch viel lernen
 
 - Oberursel Dynasty
 - Neu Anspach MyFlower
